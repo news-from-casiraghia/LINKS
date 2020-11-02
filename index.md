@@ -1,4 +1,4 @@
-### Ecco i link per scaricare l'app del Liceo!
+### I link per scaricarla:
 
 - [Clicca qui](https://drive.google.com/file/d/1Je9oqi6tPhfFCPVZ5-3UejalRiVRYn9R/view?usp=drivesdk) per il link per Android
 
